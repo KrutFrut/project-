@@ -1,2 +1,0 @@
-# project-
-nabiev kamil almz
